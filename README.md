@@ -1,6 +1,1 @@
-Welcome, I'm Leslie Alejandra Hurtado. @lahg771 here on github.
-
-I'm currently a first-year college student studying Computer Science and Graphic Design at University of Texas Rio Grande Valley.
-
-
-You can reach me at lesliehurtado1103@gmail.com for inquiries.
+Yo yo yo this is Leslie right here broadcasting live from the target on McColl rd in Mcallen Texas!! I'm currently trying out the ipad pro and the magic keyboard attachment! I'm finding it to be of extremely good build quality, but the only issue im facing is the keys are very spaced out?? Somehow in a very odd way...
